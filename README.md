@@ -1,5 +1,5 @@
 ## about me ⟢
 
-︱▸ she/her - pt/br - 16y
+︱▸ she/her - pt/br - 18y
 
-︱▸ student
+︱▸ Software Engineering
